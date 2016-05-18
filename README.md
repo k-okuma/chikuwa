@@ -1,3 +1,9 @@
 # chikuwa
 
-    #korehatestnanodesu
+#‚±‚ê‚ÍGitHub‚ÌƒeƒXƒg
+
+##Oppai
+
+*Dcup
+*Ecup
+*Fcup
